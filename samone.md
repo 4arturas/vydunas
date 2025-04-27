@@ -155,4 +155,26 @@ Visa tai, kas čia pasakyta, yra mintys, kurios kuriasi mūsų sąmonėje. Todė
 
 O tikrai nuostabus dalykas yra tai, kad šiandien mes galime apie visatos pasidarymą mąstyti, tarsi tas didysis vyksmas naujai riedėtų mūsų sąmonėje. Jaučiame, lyg jame glūdėtų koks tikras būtinumas. O visam tam apmąstyti yra reikalinga sąmonė.
 
+Tiesa, kai kurie gal sakys, ji dabar esanti reikalinga, kada ana neapmatoma amžių ir bekraštės erdvės visatos pasidarymo raidą žmogus vaizduojasi savo viduje. Bet ar ir tai nėra labai nuostabu? Juk negalima suprasti, kaip tokie vyksmai gali tarsi kartotis sąmonėje, gali čia būti patiriami. Ar tai tik ne todėl, kad kiekvieno žmogaus sąmonė yra atskira kibirkštis tos visą apimančios sąmonės, kaip materės krislelis yra viso nesąmoningumo dalelė?
+
+Paprastai nepagalvojama, kad tam didžiam visatos susidarymui sąmoningumas yra būtinas. Ir tiktai retam-kam teateina mintis, ar be sąmoningumo tai ir būtų galima. Didieji vyksmai suprantami buvo, todėl tenka ir pripažinti, kad kas nors buvo, kam ir kuriam jie įvyko.
+
+Yra galima prisiminti didžiąją bekraštę erdvę ir neapribotą amžinybę. Jose viskas vyko. O jiedvi atrodo tarsi būtų neprieinamas nesąmoningumas. Bet ir laikas ir erdvė tesiranda su sąmone, kokią pažįstame. Žinomasis manytojas Immanuelis Kantas jiedvi su priežastingumu vadina "žmoniškos dvasios žiūros lytimis".
+
+Rodos numanu, kad daiktai be erdvės nėra galimi, bet erdvė be daiktų lyg ir galėtų būti. Panašiai galvokime ir apie laiką ir vyksmus. Sąmonė apima dangų bei žemę ir stengiasi pasiekti pradžią bei pabaigą visų amžinybių.
+
+Todėl tebelieka pripažinti, kad viskas, kas yra ir kas atsitinka, tegali būti suprantama kaip kokios nors sąmonės turinys.
+
+Ir taip vėl visais atžvilgiais išsiskiria sąmoningumas ir nesąmoningumas kaip patys tikrovės kraštutinumai.
+
+Ką akys pastebi, rankos nutveria yra daiktai, yra nesąmoningumas. Bet tai, kame jie būva, yra sąmoningumas. Šale jo nieko negali būti. Vėlgi kiekvienas daiktas savyje turi daugiau ar mažiau to, kas nėra sąmoninga. Kitaip jis nebūtų daiktas. Ir vėl jame turi būti sąmoningumo, kitaip jis nebūtų gimęs, tai yra daiktu pasidaręs.
+
+Abu kraštutinumai kildina tai, kas yra, vadinama visa visata, visa esybe. Sąmoningumas nesiskiria nuo mūsų sąmonės. O nesąmoningumas su visomis patirtimis prasiskverbia į ją. Iš jo išmokstame suprasti, kas yra sąmoninga. Iš nesąmoningumo suvokiame save kaip dalyvaujančius sąmoningume.
+
+Taip suprantame visą visatą iš vienos pusės kaip sąmoningumą, iš antros - kaip nesąmoningumą. Nesąmoningumas tėra sąmoningume kaip juslių daiktai erdvėje. Bet ar tų tikrovės kraštutinumų pagaliau tik nebus vienos vieningos kilmės?
+
+Niekas, kuris erdvėje savo akimis (juslėmis) stebi daiktus, netiki, kad erdvė iš jų pasidaranti. Greičiau galėtų daiktai gimti iš erdvės. Ir nieks nepripažįsta, kad laikas atsirandantis iš vyksmų, kurie laikuose pastebimi. Visi tvirtina, kad jie su laikais ir iš jų pasidarę.
+
+Todėl ir tenka priimti, kad nesąmoningumas kaip ir erdvė su laiku yra kilę iš sąmoningumo, o ne atvirkščiai. Tik tas sąmoningumas turi būti nepalyginamai šviesesnis negu tas, kuris reiškiasi mūsų sąmonėje. Manytina, kad jis pasistato nesąmoningumą ir jame kaupia bei slepia visą turį ir turinį, jeigu juo skolintis esimą ir taip tarp tų kraštutinumų kurti visatos gausą.
+
 

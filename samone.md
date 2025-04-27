@@ -1,4 +1,4 @@
-## Įvedamieji Samonės Klimes Aiškinimai
+## Įvedamieji Sąmonės Kilmės Aiškinimai
 
 Sąmonė yra pats esmingasis žmogaus aspektas gyvenime. Ir norint save pažinti, tiktai pravartu nuodugniai apmąstyt. Nedaugelis žmonių tam yra linkę. Sąmonė peraiškiai rodosi kasdieniniu dalyku. Ir tiktai ji tokia yra. Todėl paprastai nelaikoma verta apie ją dar pagalvoti. O kad vieni-antri tačiau pabando tai daryti, jie greitai sustoja. Labai sunku pasirinkti savo sąmone savo pažinties dalyku. Vis-dėlto reikėtų būti drąsiems. Sąmone aiškintis yra esminis žmogaus susipratimo uždavinys.
 

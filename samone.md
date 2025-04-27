@@ -81,5 +81,78 @@ Tai gerai pastebėtina. Jaunuolis nori, kad mergaitė būtų. Save nori visai pa
 
 Toliau žinotina, kad dalykai, kuriems žmogus skiria savo sąmonę, gali būti visai nepalyginami vieni su kitais. Yra tokiu, kurie veikia žmogaus akis, ausis, ir t.t. Iš to žmogus pasidaro patirtį, sąmonei tenka šioks-toks turinys. Bet yra ir patirčių, kurios žmogus visai kitokiu būdu tenka. Jos randasi, kaip sąkoma, žmogaus viduje, nieko nepamačius ir neišgirdus.
 
-Žmogus numano savo viduje ypatingas būsenas. Kyla jam visokie geiduliai, visokie aistros. Toliau sąmonėje randasi ir visokie mintys, visokie vaizdai. Iš kur visa tai atvyksta, žmogus paprastai negali pasiaiškinti. Jis vien žino, kad jis tai patiria. Sakoma kartais, jis atsimenąs viso-ko. Bet ką tai reiškia, retai kas pabando suprasti. Ir patys mūsų laikų mokslininkai
+Žmogus numano savo viduje ypatingas būsenas. Kyla jam visokie geiduliai, visokie aistros. Toliau sąmonėje randasi ir visokie mintys, visokie vaizdai. Iš kur visa tai atvyksta, žmogus paprastai negali pasiaiškinti. Jis vien žino, kad jis tai patiria. Sakoma kartais, jis atsimenąs viso-ko. Bet ką tai reiškia, retai kas pabando suprasti. Ir patys mūsų laikų mokslininkai neįstengia to tikrai padaryti. Minimos patirtys lyg iš kokio nežinomumo atplaukia ir tada vėl jame nuskęsta.
+
+O su tokiomis būsenomis yra dalykai. Žmonių sąmonė susituokia. Ir tada žmonėse jaučiasi verčiami kaip nors veikti, kaip nors daryti. Ir taip gimsta iš tų vidaus būsenų, iš tų minčių visokie regimi veiksmai ir daiktai. Visas žmonių gyvenimas yra tų veiksmų ir daiktų darymas. O su laikais nuolat atsiranda vis kitokie.
+
+Todėl žmonių žinojimas yra išmąstymas šimtmečiais ir tūkstantmečiais kinta kaip srovės bangos. O laikais tai pastebime tik kaip kokią atmainą. Minimas žmonių išmąstymas lyg supasi tarp dviejų priešingumų. Kartais rodosi, kad kas nors yra galutinai ištirta ir nustatyta, apie ką žmonės seniau nei sapnuote nesapnavo, o toliau tas naujas išmąstymas yra mažiau vertinamas, net paniekinamas, ir pagaliau pamirštamas. O po kiek laiko žmonės pradeda jį vėl atminti arba jį naujai įsigyja, ir vėl jį leidžia reikštis gyvenime.
+
+Tokiu būdu žmonių sąmonė tai tų, tai vėl kitų kitokių skiriasi ir atsiveria. Yra laikų, kada vienam manytojui tiesos mėgėjai teikia aukščiausią vietą. O po kiek laiko jis vėl stumiamas į negerbimo ir toliau į pamiršimo tamsą. Kitais laikais vieni kiti tyrinėtojai kaip audra lekia priekin, pašiepdami visus, kurie juo neseka. Bet dėl savo aistringumo jie nepastebi dalykų, kurių jie ieško. Ir kiti, eidami jų takais, juos čia suranda ir rankioja. Iš minčių ir nuomonių, kurias anie nesidairydami išbėrė, kiti pasidaro labai reikšmingus daiktus ir veiksmus.
+
+Viduramžių gamtos tyrinėtojai savo mąstymais buvo pradininkai mūsų laikų kultūros. Viso ko jie siekė. Ir išradimai augo iki mūsų laikų. Vėl paimti seniau atmestieji mąstymai atveria žmonėms žvilgsnį į visokius santykius gamtoje, į priežastis ir pasekmes ir į tarp vyksmų esančias sąsajas.
+
+Tada visai aiškėja, kad visi žmonių mąstymai nepasilieka tik vidaus dalykais. Visuomet buvo ir yra galima pastebėti, kad tai, prie ko žmogaus sąmonė parimsta, ką ji savyje palaiko, įauga pagaliau į kūno gyvenimo sritį, į daiktingąjį pasaulį, kaip ir kiti augalų pavidalai. Žmogaus mąstytos mintys virsta daiktais. O vėl daiktai, kurie tokiu būdu pasidaro pasaulyje, arba gamtos yra kurti, įgyja jėgos ir reikšmės, kada žmogus juos traukia atgal į savo sąmonę.
+
+Tokie tvirtinimai tūliems atrodys gal gana keisti. Bet jie išeina iš tikrų įvykių pastebėjimo. Juos rimtai tirdamas, kiek-vienas žmogus įsitikins, kad jie sako tiesą.
+
+Daiktinė kultūra tik tokiu būdu kuriama, kaip šičia minėta. Ir vėl, kada kokia-nors kultūra nyksta ir žūva, to priežastis glūdi žmogaus sąmonės nukreipime nuo jos. Mūsų laikų kultūra išaugo, žmonėms skiriant savo sąmonę visų pirma daiktams. Todėl ta kultūra tikriausiai yra būdinga savo daiktingumu. O atitinkamai ji ir veikia žmones. Taip labai ji mūsų laikų žmonių sąmonę užgulė, kad susiurbė beveik ir visą žmoniškumą. Bet materialiniai tos kultūros daiktai vis auga ir dabar nuolat medžiagiškai sunkėja. Ir dabar žmonės beveik nebėra jų valdytojai, bet daiktai, griūdami ant žmonių, visą žmoniją beveik sutraiškė.
+
+Gal būt, kad kartos, kurios išliks, susipras, ir savo sąmonę skirs kitiems dalykams. Tada tie augs ir įgys gyvenimui reikšmės. Rasi tai tada bus šviesesnis, ir žmonės iškils iš apkalimo, iš nevilties į savo esmės didybę. Ir atsimins savo žmoniškumą. O tada tasai augdamas įgys savo būdu naują kūrybinę reikšmę daiktų pasaulyje, bet jau gyvumo lygyje.
+
+## Abu Tikrovės Kraštutinumai
+
+Kas tikrovė yra, žmonės tiki suvokdami juslėmis. Jie tą mato, girdi. Visi žinomi ir nežinomi daiktai ir dalykai su visais įvairiais jų ypatumais, panašumais ir skirtumais ją sudaro.
+
+Taip dažniausiai mano tie žmonės, kurie leidžiasi nešti gyvenimo srovėse, nesižvalgydami ir nesustodami pamąstyti, kas yra gyvenimas ir tikrovė. Jų manymas vadinamas svetimu žodžiu naivu, būtent menku, silpnu, paviršutinišku.
+
+Bet yra ir tokių žmonių, kurie aiškiai supranta, kad tai, kas juslėmis patiriama, nėra viskas, kas yra. Dar numanyta, kad tai nei nėra tikrovė. Ir todėl jos ieško visomis galiomis. Tada pagaliau ir prieina tai, ką 17-am šimtmetyje Prancūzų manytojas Dekartas tvirtino, būtent, kad visu kuo reikia abejoti ir kad teisingai tegalima sakyti: cogito, ergo sum (mąstau, taigi esu).
+
+Tik štai jau ir tenka stabtelėti. Ar jau žino nors kas, ką reiškia mąstyti, išmanyti? Kas čia darosi?
+
+Tiesa, kiekvienam yra aišku, kad jis mąsto. Ir jis paprastai tiki, kad tas jo mąstymas kyla iš aplinkos įspūdžių ir jo juslių. Kartą prasidėjęs mąstymas rieda tolyn savaimiškai pramuštu keliu. 
+
+Bet ir tokiomis mintimis, rodos, nedaug žmonių tesirūpina. Jie gyvena, tikėdami tikrove esant jų aplinkoje išplėstai, nors žino, koks kintamas dalykas, pavyzdžiui, yra vanduo, kuriam prilygsta pagaliau visi daiktai. Juk jie randasi ir dingsta, kaip srovėje bangelės ir burbulai sukyla ir pranyksta. Todėl jau senųjų Graikų manytojas Heraklitas sakė: Viskas srovė. Žmonės pamiršta, kad visi daiktai praeina. O kur tada dar mintis, kad ta jų tikrovė yra nuolatinis kismas ir kad už jo turi būti kas-nors būnamo, kas yra visų-tų Sąmonės priežastis ir pagrindas!
+
+Tūliems, kurie apie tai jau ir mąsto, rodosi, kad tas pagrindas esąs materė, medžiaga. Iš jos visi daiktai, visa ką sužinome, netgi dvasinis mūsų vidus su visu jo turiniu, su juslėmis, jausmais, geidimais, protavimais ir t.t. pasidaręs.
+
+Bet vėl tenka klausti: O kas ta materė yra? Ar ji gali būti gyvenimo tikrove? Dar juk ji nėra nei galutinis prieinamas dalykas. Geležis yra geležis, molis - molis, vanduo - vanduo.
+Kur šita materė? Jau seniai ginčijama, kad vanduo pasidaro iš deguonies ir vandenilio. Tik nieks nepasakė, kodėl abu, kuriuo-du yra neregimi, susijungdami virsta regimu, sučiuopiamu skysčiu. Nėra tokios materės, iš kurios daiktai atsirastų. Materė yra žmonių sugalvota sąvoka.
+
+Dabar gyvuoja nauja pažiūra. Kas materė vadinama, ar tai būtų auksas ar ledas, nėra daiktingas, būvęs dalykas, bet vyksmas. Mokslininkams aiškėja, kad mažiausieji materės krisleliai, senųjų Graikų žodžiu atomais vadinami, nebūna, bet atsitinka. Kiekvienas atomas yra kaž-kokių spuogų sukimasis aplink kaž-kokį vidurį. Tie spuogai ir tas vidurys yra įvardinti, bet maža-kas tuo paaiškinta.
+
+Taip rašydami mes parodome, ką žmogus yra manęs apie materę. Bet mąstymas vyksta žmogaus sąmonėje. Todėl ir sakėme, kad žodis materė pažymi ne regimo pasaulio dalyką, bet žmogaus protavimo padarą, kuriems priskiriamos visokios daiktingumo ypatybės. Materė glūdo iš tikrųjų tik žmogaus sąmonėje.
+
+Todėl yra tikrai reikšminga, kad protingi žmonės galėjo tikėti materę esant ta tikrove, iš kurios pasidaręs visoks daiktingumas ir visi regimi ir sučiuopiami pasaulio daiktai. Ir nenumano, kad materė, kaip sakėme, yra galvojimo kūrinys, sąmonės turinys. Daugelis ir neigia, kad daiktas gali atsirasti iš sąmonės
+turinio. Paprastai kalbama, kad mintys pasidaro iš daiktų.
+
+Toliau tenka suprasti dar vieną dalyką. Esame tikri, kad gyvename visokių daiktų tarpe. Jie tiesiai atsistoję prieš mus ir kartais net lyg mus užgula. Bet mes juos sužinome tik būdami sąmoningi. Tada mes juos laikome esamus, kadangi surandame jų atspindėjimą savo sąmonėje. Ir nežinodami, ką daro, ši atsispindėjimą, ši sąmonėje susidariusį vaizdą laikome pačiu daiktu ir tikime jį pažįstą.
+
+Nebūdami sąmoningi, nieko nežinotume apie kokiu-nors daiktų esimą. Kiekvienas daiktas mūsų yra patiriamas, kad sąmonė jo įspūdį pagauna. Apie patį daiktą iš tikrųjų nieko nežinome. O vien apie tai, kas randasi sąmonėje, jai su įspūdžiu sąveikaujant.
+
+Todėl tūli manytojai daiktingajį pasaulį ir nelaiko tikrove. Ką patiriame, esą tik mūsų sąmonės turinys. Tokiu manymu pasidarė labai žinomas Vokietijos manytojas Arthur'as Schopenhauer'is. Garsusis jo mokslas vadinasi: „Pasaulis kaip Valia ir Vaizdinys“.
+
+Bet viskas, ką mūsų sąmonė suvokia, ką sąmonėje randame, kaip-nors ir kur-nors turi būti esama. Vokietijos mokslininkas ir manytojas Ernst'as Mach'as sako, kad mes laikome kūnais pojūčių sąmazgius (kompleksus) ir kad kūnai tesą ryšuliai dėsningų atoveiksmių (reakcijų). Bet tuo nei nėra pasakyta, iš kur kyla tai, kas tuos sąmazgius ir atoveiksmius gamina.
+
+Tokiu būdu, rodos, aiškėja, kad mąstantieji žmonės tarp dviejų tikrovių svyruoja. Kartais kreipiasi į tai, kas neabejotinai reiškiasi esąs, ir kartais į tai, kame tas esamas dalykas patiriamas, į tai, kas jį pagauna ir savimi prisunkia.
+
+Šviesus žmogus aiškiai išmano, kad jo sąmonė yra tai, kas kaip-nors esamą padaro žinomu, ir tokiu būdu sau esamą. Ir taip suprasta, kad yra du dalykai, būtent sąmonė ir tai, kas kaip-nors yra ir jos padaroma savo turiniu.
+
+Tai-gi stovi prieš vienas kitą sąmonė ir tai, kas nėra sąmonė. Kalbame apie juos kaip apie sąmoningumą ir nesąmoningumą.
+
+Lygia prasme priešpastatomi dvasia ir materė. Bet tuo-du žodžiu šičia ne visai tiktu. Priimta jų prasmė niaukia manymą. O žodžiai sąmoningumas ir nesąmoningumas arba daiktingumas lyg atidengia visą patiriamą tikrovę. Juodu, gerai pažvelgus, išsirodo esą jos kraštutinumu-du.
+
+Paprastam protavimui jų esmė nelengvai prieinama. Vis dėlto tai galima. Tik žmonių dauguma nesirūpina tiek sąmoningumu, kiek prieinamesniu daiktingumu. O iš tikrųjų kiekvienam bundančiam žmogui artimiausia yra jo sąmonė, šitas sąmoningumo apsiribojimas.
+
+Nepaisydami to, bet žengdami tolyn, pastebime dar kitą-ką. Žmogus lyg savaime supranta, kad, kaip jo sąmonė pasitinka materialumą, taip tą padaro ir kitų asmenų sąmonė. Ir todėl prieš žmogų neatsistoja tik grynas materialumas, bet ir skirtingo sąmoningumo prisunktasis, ir virsta stebėtojo sąmonės turiniu. Ir taip aiškėja, kad sąmoningumas reiškiasi iš viso, ką tik patiriame, ir kad mūsų sąmonė tėra atskiras jo apskritys.
+
+Juslėmis, tiesa, nėra pagaunamas sąmoningumas. Jis nepadaro įspūdžio į jas, kadangi jas veikia tik kokios-nors rūšies materialumas. Ką sąmoningumo išraiškų pagauname, vadiname įvaizdžiu, lytimi, pavidalu. Todėl pasaulis atrodo, tarsi jis būtų vien tik materialus. Ir tai būtų pati visa tikrovė.
+
+O jau pats mūsų žodis daiktas primena ne daikto esimą, bet jo pasidarymą, jo dygimą. Augmuo yra dygęs ir augęs. Bet iš kur tas gimimas kyla, retai kas tepamąsto. Ir vėliau suprantama, kad kaip daiktas gimsta ir auga, taip iš jo ir randasi pamažu sąmoningumas ir atskira sąmonė.
+
+Bet prieš ilgus neapmatomus amžius tebuvo tas, ką galime vadinti nesąmoningumu, didysis bekraštis chaosas, kaip senieji Graikai sakydavo, nerūšiuotos materės, arba dar toliau atgal amžinybės rūkai, arba gal žėri tirštumai, kaip filosofas Kantas ir matematikas Laplasas sako, pildė bekraštę erdvę. Pamažu tada įvykęs kismas, tirštumai susikaupė, pasidarė rutuliai, kuriuose ilgų neapmatomų amžių laiku prašvitusi ir švytėjusi gyvybė, kol netapusi sąmonės šviesa.
+
+Visa tai, kas čia pasakyta, yra mintys, kurios kuriasi mūsų sąmonėje. Todėl tvirtina vienas manytojas, kad viskas, kas yra ir vyksta, gali būti suprantamas kaip kokios-nors sąmonės turinys. Ir tenka sakyti, kad minėtasis visatos atsiradimo procesas tegalėjo įvykti didžiojoje visą visatą apimančiojoje sąmonėje.
+
+O tikrai nuostabus dalykas yra tai, kad šiandien mes galime apie visatos pasidarymą mąstyti, tarsi tas didysis vyksmas naujai riedėtų mūsų sąmonėje. Jaučiame, lyg jame glūdėtų koks tikras būtinumas. O visam tam apmąstyti yra reikalinga sąmonė.
+
 
